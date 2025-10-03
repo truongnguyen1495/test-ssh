@@ -1,1 +1,1 @@
-my computer github global
+chung ta se ben nhau suot doi
